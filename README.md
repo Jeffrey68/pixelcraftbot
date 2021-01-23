@@ -1,3 +1,0 @@
-# pixelcraftbot
-Hsss
-sdd
